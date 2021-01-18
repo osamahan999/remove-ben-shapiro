@@ -1,0 +1,1 @@
+Removes Ben Shabibo (also known as Shapiro) from your YouTube homepage. 
